@@ -8,7 +8,7 @@
 
 🤝 Open to: Contributions, discussions, and team projects in software development.
 
-📫 Reach me at:abhishekameta142@gmail.com
+📫 Reach me at:abhishekameta142@gmail.com  📧
 
 😄 Pronouns: He/Him
 
